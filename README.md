@@ -221,6 +221,5 @@ For more content on SQL, data analysis, and other data-related topics, make sure
 
 - **Instagram**: [Follow me ](https://www.instagram.com/sawab_e_darain/)
 - **LinkedIn**: [Connect with me professionally](https://www.linkedin.com/in/syed-darain-h-a45a70306?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
-- **Discord**: [Join me](sawab_e_darain)
 
 Thank you for your support, and I look forward to connecting with you!
